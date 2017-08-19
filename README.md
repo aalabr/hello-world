@@ -7,7 +7,7 @@ some recommendations to young men:
     - Do not lie on you monther.
     - Cut your hair by yourself.
     - Chew on the right side only.
-    - Do not bike on flattires. 
+    - Do not bike on flat tires. 
     - Sleep on your stomach
     - Lie on your gf
     
