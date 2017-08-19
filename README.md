@@ -1,5 +1,5 @@
 # hello-world
-list of recommendations to young men:
+List of Recommendations to Young Men:
     - shave the left side  of your beard only
     - Do not smile at your gf at afterlunch. 
     - Do not lie on you mother.
